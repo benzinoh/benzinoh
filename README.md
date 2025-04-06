@@ -17,7 +17,7 @@ I’m a curious developer and lifelong learner who loves tackling interesting ch
 ## Connect with Me
 
 - **Website:** [Link to my personal website](https://www.bennwokoye.com)
-- **LinkedIn:** [My LinkedIn](https://www.linkedin.com/in/benjaminnwokoye)
+- **LinkedIn:** [My LinkedIn](https://www.linkedin.com/in/benjamin-nwokoye/)
 
 ## Feedback
 
